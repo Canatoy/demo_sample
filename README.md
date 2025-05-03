@@ -1,1 +1,1 @@
-for educational purpose onlu
+for educational purpose only
